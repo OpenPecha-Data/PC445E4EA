@@ -1,1 +1,1 @@
-#buddhism.ru yagpo Tengyur
+#buddhism.ru yagpo Tengyur(pedurma)
